@@ -1,1 +1,0 @@
-# Tipos_de_espelhos
